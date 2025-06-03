@@ -3,6 +3,9 @@
 (Sou apaixonadaa) por **dança** e tecnologia!  
 Aqui no GitHub, misturo criatividade, ritmo e código para celebrar a arte do movimento.
 
+![bubu-dancing-dance](https://github.com/user-attachments/assets/b78410db-3b3c-419c-b7e6-bf3ca433d4a7)
+
+
 ---
 
 ## 🎵 Sobre mim
