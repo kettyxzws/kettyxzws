@@ -1,4 +1,4 @@
-# 💃 Oii, eu sou Ketelin!
+# 💃 Oii, eu sou a Ketelin!
 
 (Sou apaixonadaa) por **dança** e tecnologia!  
 Aqui no GitHub, misturo criatividade, ritmo e código para celebrar a arte do movimento.
