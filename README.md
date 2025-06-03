@@ -13,7 +13,9 @@ Aqui no GitHub, misturo criatividade, ritmo e código para celebrar a arte do mo
 - Programador(a) focado(a) em projetos criativos que unem arte e código.  
 - Sempre buscando inspiração no ritmo da música e na fluidez dos passos.
 
----
+
+-![homer](https://github.com/user-attachments/assets/ba3a16b9-184f-49d9-80ff-5d4304a6ecbf)
+
 
 ## 🚀 Projetos favoritos
 
